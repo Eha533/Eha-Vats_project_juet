@@ -1,1 +1,1 @@
-# Eha-Vats_project_juet
+# Eha Vats_project_juet
